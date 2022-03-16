@@ -25,3 +25,4 @@
 
 
 관련 영상 : https://www.youtube.com/watch?v=qfaDkCoy5v8
+관련 기사 : https://www.mk.co.kr/news/economy/view/2021/12/1189481/
